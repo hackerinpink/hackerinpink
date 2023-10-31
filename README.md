@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+I am Ainsel, for Ainsel means me. Nice to meet you!
+
+Credit to [Sangled](https://twitter.com/Sangled) for the picrew in my avatar!
+
 <!--
 **myAinsel/myAinsel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
