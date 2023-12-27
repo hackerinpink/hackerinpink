@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am Ainsel, for Ainsel means me. Nice to meet you!
+Please, call me Morgan. I like 2 things: hacking things, and building things to be hacked. Nice to meet you!
 
 Credit to [Sangled](https://twitter.com/Sangled) for the picrew in my avatar!
 
